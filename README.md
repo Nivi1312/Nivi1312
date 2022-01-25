@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nivikeetthi@gmail.com**
 
-- ⚡ Fun fact **Never get bored will watching Kdramas :)**
+- ⚡ Fun fact **Never get bored while watching Kdramas :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
