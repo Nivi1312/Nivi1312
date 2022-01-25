@@ -9,7 +9,7 @@
 
 <img align="right" alt="coding" width="400" src="https://thumbs.gfycat.com/HoarseVeneratedCardinal-size_restricted.gif">
 
-- 🌱 I’m currently learning **Currently Pursuring BE in CSE from SEC**
+- 🌱Currently Pursuring **BE in CSE from SEC**
 
 - 📫 How to reach me **nivikeetthi@gmail.com**
 
