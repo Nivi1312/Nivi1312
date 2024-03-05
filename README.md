@@ -9,7 +9,7 @@
 
 <img align="right" alt="coding" width="400" src="https://www.bing.com/th/id/OGC.81178b47a8598f0c81c4799f2cdd4057?pid=1.7&rurl=https%3a%2f%2fdevpunch.com%2fimg%2fDev-At-Work-Gif.jpg&ehk=C0AAneCJcAodL%2fZtD0Vk02XGq9jxtiAKq%2bxYCr8u0kM%3d">
 
-- 🌱Currently Pursuring **BE in CSE from SEC**
+- 🌱**BE in CSE from SEC**
 
 - 📫 How to reach me **nivikeetthi@gmail.com**
 
